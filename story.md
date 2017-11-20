@@ -14,6 +14,6 @@ After being assigned to work a night shift at the factory she gets caught up in 
 
 After being released from care and seeking new work, she is followed by a secret agent who had noted her rapid healing. She catches on after a while and begins to experiment with her ability to heal. After some time she begins to get a hold on her new ability she decides to confront the man following her and get in over her head but due to discovering another power, short range teleporting.
 
-# A Villian
+# A Villain
 
-For the most part Ana faces off against low level thieves and muggers while wearing a simple costume to hide her identity. Her main villain for the arc is the scientist who dragged her and the other workers into the experiment who is trying to recreate the experiment, knowing how it effected Ana and how it effected her. 
+For the most part Ana faces off against low level thieves and muggers while wearing a simple costume to hide her identity. Her main villain for the arc is the scientist who dragged her and the other workers into the experiment who is trying to recreate the experiment, knowing how it effected Ana and how it effected her. All throughout her back the leader of the experiment her has grown scales that spread up her neck to the edges of her cheeks. Velara wants to capture Ana to analysis how the explosion changed Ana so that she can reverse what has happened to her. 
